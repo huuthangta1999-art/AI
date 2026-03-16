@@ -1,0 +1,2 @@
+# AI
+ranh roi vai
